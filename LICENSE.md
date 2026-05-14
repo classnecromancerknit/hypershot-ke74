@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with automatic hypershot Scripts, the #1 Script. Includes private server access and one-hit kill for
 
 
 
